@@ -280,6 +280,16 @@ Huang. Taiwanese snacks and street food. Cheap and authentic.
 
 > The go-to halal street meat food cart in Manhattan
 
+[Venessas's Dumpling House](http://vanessas.com/)
+
+> Cheap authentic Chinese dumpling. Go for Wontons and spicy sause.
+
+*Midtown / Theater district*
+
+[Halal Guys](http://www.yelp.com/biz/the-halal-guys-new-york-2)
+
+> Cash only. $6 for a bowl of chicken or lamp over rice.
+
 ## Jewish Deli / Eastern European Fare
 
 [Katz's Deli](http://www.yelp.com/biz/katzs-delicatessen-new-york)
@@ -312,7 +322,6 @@ perfect in every way!
 to get bagels. You could totally at Russ & Daughters. My friends used to
 get them at Zabar's supermarkets. I have two favorites but they were just
 close to where I lived but don't remember their names.
-
 
 ## Dessert
 [Levain](http://www.yelp.com/biz/levain-bakery-new-york)
