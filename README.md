@@ -124,6 +124,8 @@ the more expensive ones on the back of the menu).
 much you've been missing out on when you bite into their pasta. It's
 perfectly al dente and often made in house.
 
+> Pro Tip: Monday nights is $10 homemade pasta
+
 
 [Il Buco Alimentari & Vineria](http://www.yelp.com/biz/il-buco-alimentari-and-vineria-new-york-2)
 
